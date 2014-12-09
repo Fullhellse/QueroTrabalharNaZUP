@@ -76,3 +76,5 @@ INFORMAÇÕES IMPORTANTES ADICIONAIS
 • Platina I na season passada do LoL 
 
 • Sempre dou all-in no poker 
+
+• No Fifa só consigo fazer gol de escanteio
