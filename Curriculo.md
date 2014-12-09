@@ -68,3 +68,11 @@ CONHECIMENTOS EM INFORMÁTICA
 IDIOMAS
 
 •	Inglês fluente e japonês instrumental.
+
+<br />
+
+INFORMAÇÕES IMPORTANTES ADICIONAIS
+
+• Platina I na season passada do LoL 
+
+• Sempre dou all-in no poker 
